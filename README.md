@@ -1,0 +1,1 @@
+# Analise_de_Votos_PR_2022
